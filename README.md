@@ -1,4 +1,4 @@
-![profile views](https://rushter.com/counter.svg)
+![Debts collected](https://rushter.com/counter.svg)
 
 Here we go , folks !
 
