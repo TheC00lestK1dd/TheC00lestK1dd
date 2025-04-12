@@ -1,3 +1,5 @@
+![profile views](https://rushter.com/counter.svg)
+
 Here we go , folks !
 
 - There is triggering words/topics at the DNI list , read with caution !!
