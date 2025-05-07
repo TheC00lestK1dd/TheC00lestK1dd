@@ -1,4 +1,4 @@
-Here we go , folks !
+Let's go gambling !
 
 - There is triggering words/topics at the DNI list , read with caution !!
 
@@ -20,4 +20,4 @@ Here we go , folks !
 
 - DNI ; homophobe/transphobe , zoophile/pedophile/necrophile/pokephile , proshipper/comshipper/darkshipper , lolicon , will sexualize me when I'm age or pet regressed , interact with people I don't like or my oomfs don't like , old friends/partners , anything about touching me even if it is a joke it makes me REALLY uncomfortable , ACTUALLY support bad people/characters/games/fandoms , force religion onto me (I'm a set atheist) , and anyone faking ANY disorder ! You people are horrible and I don't get how you can even do such a thing when there are real people out there dealing with these disorders .
 
-You're mine !
+iTrapped ... ?
