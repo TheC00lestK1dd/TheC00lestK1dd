@@ -4,6 +4,6 @@ No info , just get to know me . I won't bite ! You can approach me unless I have
 
 Umm I love making gift skins or skin trading ,, PLEASE SKINN TRADE WITH ME OR MAKE ME GIFTS I LVE THE<M
 
-I won't put a DNI list here but I of course have groups of people I'd rather not interact with me . If you fit that criteria I will simply block you or ignore you because I block freely .
+I won't put a DNI list here but I of course have groups of people I'd rather not interact with me . If you fit that criteria I will simply block you or ignore you because I block freely . The only thing I will say is minors under 15 DNI , I am traumatized from minors due to past events and cannot trust them around me anymore . 
 
 That's the girl in our target list !
