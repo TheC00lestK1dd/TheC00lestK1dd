@@ -1,3 +1,3 @@
-I won't put a DNI list here but I of course have groups of people I'd rather not interact with me . If you fit that criteria I will simply block you or ignore you because I block freely . The only thing I will say is ex friends/partners DNI and minors under 15 .. I am traumatized from minors due to past events and cannot trust them around me anymore ...
+I don't exactly have a DNI list , I block freely . But minors under 16 please DNI unless I know you , I am traumatized from minors due to past events and cannot trust them around me anymore .
 
-Coughs my oc x canon ; Vicyen x Guest 666 (Myth) , and Guest oc I forgor the name of x Eunoia
+Includes my oc x canon ships cause I can ... My friend's wizard oc (Vicyen) x Guest 666 (Myth) and my friend's Guest oc I forgor the name of x Eunoia !!
