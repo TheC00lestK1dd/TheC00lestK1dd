@@ -9,3 +9,13 @@ I often disconnect from pony town or discord voice calls due to my shitty pc or 
 I type fast , which can lead to spelling mistakes or sometimes not make sense . I also replace s with z in my texts because I'm an alien / non-human !! If you cannot understand this or have a screen reader and need me to stop , please tell me nicely ,, I ask that you don't mock me , as that is just annoying and hurtful cause you're not funny for that shit ..
 
 If my interacting with you makes you uncomfortable due to my age , please let me know so I do not interact further . on that topic , in case you don't read the pronouns.cc , I am hypersexual . I use sexually fueled humor to cope and will gladly reciprocate it if you start it . I lack social awareness , so I have trouble knowing when to stop / when someone is uncomfortable unless they tell me directly !
+
+due to really bad anxiety and being an introvert , I am more than likely not going to be the one to approach or say something to you first .. I love to make friends and cuddle . I am just bad with interaction !! with that being said , I can either be annoyingly excited / hyper when we first meet or awkwardly quiet ,,
+
+I can be bad at starting and keeping a conversation going unless it's about something like a hyperfix of mine , so please do not expect me to text first . I'm sorry ! but you can always text me instead . I will be sure to reply unless I forget . I may go silent for a short or long period of time if I get distracted , am already doing something like playing a game , or forgot to respond . I promise it isn't because of you !
+
+I tend to make jokes or downright say triggering stuff like forms of harm , usually during a hard time for me , like my bodily function every month cause I'm afab .. let me know if this would trigger or make you uncomfortable , or else I'll continue doing it !! I don't like making people uncomfortable , I feel bad ,,
+
+I do not have a dni list . I will block you if I please ! but with that being said , it should be at least some common sense about the types of people I don't want interacting with me .
+
+I'm not likely to add you quickly ,, I prefer to get to know who I add first .. If we cuddle and you wanna add me , then sure , I will probably accept !!
