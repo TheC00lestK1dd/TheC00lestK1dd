@@ -18,24 +18,28 @@ I can be bad at starting and keeping a conversation going unless it's about some
 
 I tend to make jokes or downright say triggering stuff like forms of harm , usually during a hard time for me , like my bodily function every month cause I'm afab .. let me know if this would trigger or make you uncomfortable , or else I'll continue doing it !! I don't like making people uncomfortable , I feel bad ,,
 
-I do not have a dni list . I will block you if I please ! but with that being said , it should be at least some common sense about the types of people I don't want interacting with me .
-
-I'm not likely to add you quickly ,, I prefer to get to know who I add first .. If we cuddle and you wanna add me , then sure , I will probably accept !!
-
-your best method of talking to me would most likely be whisper , as I get distracted really easily , or might be offtab . I may not respond to the whisper immediately , though , as I may not see it . I promise I'm not ignoring you !
-
-you can cuddle me freely , it is heavily encouraged due to my cuddle comfort !! I prefer to be in the back , but I can be in the front too ,, I don't really mind either way , just a preference ..
-
-I love roleplaying , I will gladly roleplay with you if you ask or even drag me into an ongoing one ! I can be embarrassed by how I roleplay though .
-
-I love matching profile pictures , statuses , etc !! If you ask me to match , I will gladly accept it unless I am already matching with someone ,, which you will know because I would have it stated somewhere ..
-
-I adore being gifted skins , I will cherish any skin you make for / gift to me . I appreciate you putting effort into something for me !
-
-I'm a fictionkin of lime + many more unlisted characters .. I do not like ' doubles ' of my fictionkins !! they are me ,,
-
-I'm a void-sharing yumeshipper of white from the among us show and MANY more . I do not like ' doubles ' of my yumeships either unless they are my familial yumeships , which I am hyper-sharing towards !
-
-don't worry .. you can still interact with me if you fall under the ficitonkin and yumeship thing ,, just be wary when doing so !!
-
 I see myself as an online parental / sibling figure , as shown by the family-related terms on my pronouns.cc . I will gladly adopt you or be a sibling figure if you ask !
+
+you can come to me for comfort / someone to listen to your vents ,, I want to be somebody people can rely on and find comfort in !! I'm aspiring to the medical field as a therapist or culinary arts as a baker ..
+
+please do not abuse the fact that I am willing to help / listen to your vents , it can quickly burn me out of social interaction and even empathy for others . also , don't expect explicit help from me; sometimes I am not sure what to say or how to help and can only listen or even do something with you , like play games together !
+
+I do not have a dni list . I will block you if I please !! but with that being said ,, it should be at least some common sense about the types of people I don't want interacting with me ..
+
+I'm not likely to add you quickly , I prefer to get to know who I add first . If we cuddle and you wanna add me , then sure , I will probably accept !
+
+your best method of talking to me would most likely be whisper ,, as I get distracted really easily , or might be offtab . I may not respond to the whisper immediately , though , as I may not see it .. I promise I'm not ignoring you !!
+
+you can cuddle me freely , it is heavily encouraged due to my cuddle comfort ! I prefer to be in the back , but I can be in the front too , I don't really mind either way , just a preference .
+
+I love roleplaying ,, I will gladly roleplay with you if you ask or even drag me into an ongoing one !! I can be embarrassed by how I roleplay though ..
+
+I love matching profile pictures , statuses , etc ! If you ask me to match , I will gladly accept it unless I am already matching with someone , which you will know because I would have it stated somewhere .
+
+I adore being gifted skins ,, I will cherish any skin you make for / gift to me .. I appreciate you putting effort into something for me !!
+
+I'm a fictionkin of lime + many more unlisted characters . I do not like ' doubles ' of my fictionkins , they are me !
+
+I'm a void-sharing yumeshipper of white from the among us show and MANY more .. I do not like ' doubles ' of my yumeships either unless they are my familial yumeships ,, which I am hyper-sharing towards !!
+
+don't worry , you can still interact with me if you fall under the ficitonkin and yumeship thing , just be wary when doing so . It can be uncomforting for me !
