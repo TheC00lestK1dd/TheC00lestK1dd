@@ -14,7 +14,7 @@ If my interacting with you makes you uncomfortable due to my age , please let me
 
 due to really bad anxiety and being an introvert , I am more than likely not going to be the one to approach or say something to you first .. I love to make friends and cuddle . I am just bad with interaction !! with that being said , I can either be annoyingly excited / hyper when we first meet or awkwardly quiet ,,
 
-I can be bad at starting and keeping a conversation going unless it's about something like a hyperfix of mine , so please do not expect me to text first . I'm sorry ! but you can always text me instead . I will be sure to reply unless I forget . I may go silent for a short or long period of time if I get distracted , don't recieve a notification from the busy status / don't see it , am already doing something like playing a game , or forgot to respond . I promise it isn't because of you !
+I can be bad at starting and keeping a conversation going unless it's about something like a hyperfix of mine , so please do not expect me to text first . I'm sorry ! but you can always text me instead . I will be sure to reply unless I forget . I may go silent for a short or long period of time if I get distracted , don't recieve a notification from the busy status / don't see it , don't know what to say , am already doing something like playing a game , or forgot to respond . I promise it isn't because of you !
 
 I tend to make jokes or downright say triggering stuff like forms of harm , usually during a hard time for me , like my bodily function every month cause I'm afab .. let me know if this would trigger or make you uncomfortable , or else I'll continue doing it !! I don't like making people uncomfortable , I feel bad ,,
 
@@ -22,7 +22,7 @@ I see myself as an online parental / sibling figure , as shown by the family-rel
 
 you can come to me for comfort / someone to listen to your vents ,, I want to be somebody people can rely on and find comfort in !! I'm aspiring to the medical field as a therapist or culinary arts as a baker ..
 
-please do not abuse the fact that I am willing to help / listen to your vents , it can quickly burn me out of social interaction and even empathy for others . also , don't expect explicit help from me; sometimes I am not sure what to say or how to help and can only listen or even do something with you , like play games together !
+please do not abuse the fact that I am willing to help / listen to your vents , it can quickly burn me out of social interaction and even empathy for you or others . also , don't expect explicit help from me; sometimes I am not sure what to say or how to help and can only listen or even do something with you , like play games together !
 
 I do not have a dni list . I will block you if I please !! but with that being said ,, it should be at least some common sense about the types of people I don't want interacting with me ..
 
