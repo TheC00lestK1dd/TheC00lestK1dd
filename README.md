@@ -1,6 +1,6 @@
 **THIS IS MAINLY FOR PONY TOWN , BUT ALSO APPLIES TO DISCORD IN SOME ASPECTS !**
 
-heya , pony town player or discord user ,, this is my info page if you want to get to know me better !! Read the whole thing ..
+heya , pony town player or discord user ,, this is my info page if you want to get to know me better !! Read the whole thing please ..
 
 the linked pronouns.cc has some info in it , such as my sexuality and gender flags , along with names , plus some terms you can call me by !
 
@@ -28,8 +28,12 @@ you can cuddle me freely , it is heavily encouraged due to my cuddle comfort !! 
 
 I love roleplaying , I will gladly roleplay with you if you ask or even drag me into an ongoing one ! I can be embarrassed by how I roleplay though .
 
-I adore being gifted skins ,, I will cherish any skin you make for / gift to me .. I appreciate you putting effort into something for me !!
+I love matching profile pictures , statuses , etc !! If you ask me to match , I will gladly accept it unless I am already matching with someone ,, which you will know because I would have it stated somewhere ..
 
-I'm a void-sharing yumeshipper of white , brown , mafioso , and MANY more . I do not like ' doubles ' of my yumeships either unless they are my familial yumeships , which I am hyper-sharing towards !
+I adore being gifted skins , I will cherish any skin you make for / gift to me . I appreciate you putting effort into something for me !
 
-don't worry , you can still interact with me if you fall under the yumeship thing ,, just be wary when doing so !!
+I'm a void-sharing yumeshipper of white , brown , mafioso , and MANY more .. I do not like ' doubles ' of my yumeships either unless they are my familial yumeships ,, which I am hyper-sharing towards !!
+
+don't worry , you can still interact with me if you fall under the yumeship thing , just be wary when doing so !
+
+I see myself as an online parental / sibling figure ,, as shown by the family-related terms on my pronouns.cc .. I will gladly adopt you or be a sibling figure if you ask !!
