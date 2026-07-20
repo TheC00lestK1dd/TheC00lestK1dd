@@ -1,4 +1,4 @@
-    **THIS IS MAINLY FOR PONY TOWN , BUT ALSO APPLIES TO DISCORD IN SOME ASPECTS . HUGE WIP !**
+**THIS IS MAINLY FOR PONY TOWN , BUT ALSO APPLIES TO DISCORD IN SOME ASPECTS . HUGE WIP !**
 
 heya , pony town player or discord user ,, this is my info page if you want to get to know me better !! Read the whole thing ..
 
@@ -14,7 +14,7 @@ If my interacting with you makes you uncomfortable due to my age , please let me
 
 due to really bad anxiety and being an introvert , I am more than likely not going to be the one to approach or say something to you first .. I love to make friends and cuddle . I am just bad with interaction !! with that being said , I can either be annoyingly excited / hyper when we first meet or awkwardly quiet ,,
 
-I can be bad at starting and keeping a conversation going unless it's about something like a hyperfix of mine , so please do not expect me to text first . I'm sorry ! but you can always text me instead . I will be sure to reply unless I forget . I may go silent for a short or long period of time if I get distracted , am already doing something like playing a game , or forgot to respond . I promise it isn't because of you !
+I can be bad at starting and keeping a conversation going unless it's about something like a hyperfix of mine , so please do not expect me to text first . I'm sorry ! but you can always text me instead . I will be sure to reply unless I forget . I may go silent for a short or long period of time if I get distracted , don't recieve a notification from the busy status / don't see it , am already doing something like playing a game , or forgot to respond . I promise it isn't because of you !
 
 I tend to make jokes or downright say triggering stuff like forms of harm , usually during a hard time for me , like my bodily function every month cause I'm afab .. let me know if this would trigger or make you uncomfortable , or else I'll continue doing it !! I don't like making people uncomfortable , I feel bad ,,
 
@@ -22,4 +22,7 @@ I do not have a dni list . I will block you if I please ! but with that being sa
 
 I'm not likely to add you quickly ,, I prefer to get to know who I add first .. If we cuddle and you wanna add me , then sure , I will probably accept !!
 
+your best method of talking to me would most likely be whisper , as I get distracted really easily , or might be offtab . I may not respond to the whisper immediately , though , as I may not see it . I promise I'm not ignoring you !
+
 you can cuddle me freely , it is heavily encouraged due to my cuddle comfort !! I prefer to be in the back , but I can be in the front too ,, I don't really mind either way , just a preference ..
+
