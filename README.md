@@ -26,3 +26,6 @@ your best method of talking to me would most likely be whisper , as I get distra
 
 you can cuddle me freely , it is heavily encouraged due to my cuddle comfort !! I prefer to be in the back , but I can be in the front too ,, I don't really mind either way , just a preference ..
 
+I love roleplaying , I will gladly roleplay with you if you ask or even drag me into an ongoing one ! I can be embarrassed by how I roleplay though .
+
+I adore being gifted skins ,, I will cherish any skin you make for / gift to me .. I appreciate you putting effort into something for me !!
