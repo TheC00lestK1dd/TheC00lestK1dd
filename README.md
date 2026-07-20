@@ -1,8 +1,10 @@
-**HUGE WIP**
+    **THIS IS MAINLY FOR PONY TOWN , BUT ALSO APPLIES TO DISCORD IN SOME ASPECTS . HUGE WIP !**
 
-heya , pony town player or discord user , this is my info page if you want to get to know me better ~
+heya , pony town player or discord user ,, this is my info page if you want to get to know me better !! Read the whole thing ..
 
-the linked pronouns.cc has some info in it , such as my sexuality and gender flags , along with names , plus some terms you can call me by ,,
+the linked pronouns.cc has some info in it , such as my sexuality and gender flags , along with names , plus some terms you can call me by !
+
+I always have the busy status on both pony town and discord !! it's my default ,, I don't use any different status besides away when I am , you guessed it , away ..
 
 I often disconnect from pony town or discord voice calls due to my shitty pc or my internet cutting out . I promise I am not trying to leave on purpose !
 
@@ -19,3 +21,5 @@ I tend to make jokes or downright say triggering stuff like forms of harm , usua
 I do not have a dni list . I will block you if I please ! but with that being said , it should be at least some common sense about the types of people I don't want interacting with me .
 
 I'm not likely to add you quickly ,, I prefer to get to know who I add first .. If we cuddle and you wanna add me , then sure , I will probably accept !!
+
+you can cuddle me freely , it is heavily encouraged due to my cuddle comfort !! I prefer to be in the back , but I can be in the front too ,, I don't really mind either way , just a preference ..
