@@ -42,4 +42,4 @@ I'm a fictionkin of lime + many more unlisted characters . I do not like ' doubl
 
 I'm a void-sharing yumeshipper of white from the among us show and MANY more .. I do not like ' doubles ' of my yumeships either unless they are my familial yumeships ,, which I am hyper-sharing towards !!
 
-don't worry , you can still interact with me if you fall under the ficitonkin and yumeship thing , just be wary when doing so . I care a lot about my yumeships !
+don't worry , you can still interact with me if you fall under the ficitonkin and yumeship thing , just be wary when doing so . aka , all I ask is that if you do yumeship with somebody I yumeship with or fictkin somebody I do , you do not mention it / make it obvious around me , and we will be perfectly fine !
