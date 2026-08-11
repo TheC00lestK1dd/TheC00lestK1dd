@@ -10,7 +10,7 @@ I often disconnect from pony town or discord voice calls due to my shitty pc or 
 
 I type fast , which can lead to spelling mistakes or sometimes not make sense . I also replace s with z in my texts because I'm an alien / non-human !! If you cannot understand this or have a screen reader and need me to stop , please tell me nicely ,, I ask that you don't mock me , as that is just annoying and hurtful cause you're not funny for that shit ..
 
-If my interacting with you makes you uncomfortable due to my age , please let me know so I do not interact further . on that topic , in case you don't read the pronouns.cc , I am hypersexual . I use sexually fueled humor to cope and will gladly reciprocate it if you start it . I lack social awareness , so I have trouble knowing when to stop / when someone is uncomfortable unless they tell me directly !
+If my interacting with you makes you uncomfortable due to my age , please let me know so I do not interact further . on that topic , in case you don't read the pronouns.cc , I am hypersexual . I use sexually fueled humor to cope and will gladly reciprocate it if you start it / continue it if I start it . I lack social awareness , so I have trouble knowing when to stop / when someone is uncomfortable unless they tell me directly !
 
 due to really bad anxiety and being an introvert , I am more than likely not going to be the one to approach or say something to you first .. I love to make friends and cuddle . I am just bad with interaction !! with that being said , I can either be annoyingly excited / hyper when we first meet or awkwardly quiet ,,
 
@@ -30,7 +30,7 @@ I'm not likely to add you quickly , I prefer to get to know who I add first . If
 
 your best method of talking to me would most likely be whisper ,, as I get distracted really easily , or might be offtab . I may not respond to the whisper immediately , though , as I may not see it .. I promise I'm not ignoring you !!
 
-you can cuddle me freely , it is heavily encouraged due to my cuddle comfort ! I prefer to be in the back , but I can be in the front too , I don't really mind either way , just a preference .
+please cuddle me , it is encouraged due to my comfort towards cuddling ! I prefer to be in the back , but I can be in the front too , I don't really mind either way .
 
 I love roleplaying ,, I will gladly roleplay with you if you ask or even drag me into an ongoing one !! I can be embarrassed by how I roleplay though ..
 
@@ -42,4 +42,4 @@ I'm a fictionkin of lime + many more unlisted characters . I do not like ' doubl
 
 I'm a void-sharing yumeshipper of white and purple from the among us show plus MANY more .. I do not like ' doubles ' of my yumeships either as this stuff is for coping and comfort unless they are my familial yumeships ,, which I am hyper-sharing towards !!
 
-don't worry , you can still interact with me if you fall under the ficitonkin and yumeship thing , just be wary when doing so . aka , all I ask is that if you do yumeship with somebody I yumeship with or fictkin somebody I do , you do not mention it often around me / basically do not shove it in my face , and we will be perfectly fine to interact !
+don't worry , you can still interact with me if you fall under the ficitonkin and yumeship thing , just be wary when doing so . aka , all I ask is that if you do yumeship with somebody I yumeship with or fictkin somebody I do , you do not basically just shove it in my face , and we will be perfectly fine to interact !
