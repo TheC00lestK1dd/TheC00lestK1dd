@@ -6,7 +6,7 @@ the linked pronouns.cc has some info in it , such as my sexuality and gender fla
 
 I always have the busy status on both pony town and discord !! It's my default ,, I don't use any different status besides away when I am , you guessed it , away ..
 
-I often disconnect from pony town or discord voice calls due to my shitty pc or my internet cutting out . I promise I am not trying to leave on purpose !
+I often disconnect from pony town or discord voice calls due to my shitty pc or my internet cutting out . I promise I am not trying to leave on purpose , especially on pony town with my lack of supporter to keep me online for longer !
 
 I type fast , which can lead to spelling mistakes or sometimes not make sense . I also replace s with z in my texts because I'm an alien / non-human !! If you cannot understand this or have a screen reader and need me to stop , please tell me nicely ,, I ask that you don't mock me , as that is just annoying and hurtful cause you're not funny for that shit ..
 
