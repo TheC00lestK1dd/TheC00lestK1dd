@@ -36,10 +36,10 @@ I love roleplaying ,, I will gladly roleplay with you if you ask or even drag me
 
 I love matching profile pictures , statuses , etc ! If you ask me to match , I will gladly accept it unless I am already matching with someone , which you will know because I would have it stated somewhere .
 
-I adore being gifted skins ,, I will cherish any skin you make for / gift to me .. I appreciate you putting effort into something for me !!
+I adore being gifted skins and making / trading skins ,, I will cherish any skin made for me and will gladly make anybody a skin , even if I do not know them .. Ask me for a skin or tell me that you would like a skin , and I will make it , but please let me know who you'd want !! (I am the skin gifter ever; I probably make gift skins constantly , and do not be afraid to tell me to change something about it if I did something wrong or you don't like something about it)
 
 I'm a fictionkin of lime + many more unlisted characters . I do not like ' doubles ' of my fictionkins , they are me !
 
 I'm a void-sharing yumeshipper of white and purple from the among us show plus MANY more .. I do not like ' doubles ' of my yumeships either as this stuff is for coping and comfort unless they are my familial yumeships ,, which I am hyper-sharing towards !!
 
-don't worry , you can still interact with me if you fall under the ficitonkin and yumeship thing , just be wary when doing so . aka , all I ask is that if you do yumeship with somebody I yumeship with or fictkin somebody I do , you do not basically just shove it in my face , and we will be perfectly fine to interact !
+don't worry , you can still freely interact with me if you fall under the ficitonkin and yumeship thing , just be wary when doing so . aka , all I ask is that if you do yumeship with somebody I yumeship with or fictkin somebody I do , you do not basically just shove it in my face , and we will be perfectly fine to interact !
